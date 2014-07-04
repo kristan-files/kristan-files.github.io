@@ -1,1 +1,1 @@
-#Kristan Baggaley - Contemporary Landscapr Painter
+#Kristan Baggaley - Contemporary Landscape Painter
